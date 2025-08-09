@@ -42,6 +42,6 @@ Contributions to enhance and optimize the light and dark mode features are welco
 
 ## Contact
 
-Feel free to reach out with any questions or opportunities. You can use the contact form on my portfolio website or send me a direct message on [LinkedIn](https://www.linkedin.com/in/alpha97/).
+Feel free to reach out with any questions or opportunities. You can use the contact form on my portfolio website or send me a direct message on [LinkedIn](https://www.linkedin.com/in/hassan-awan01).
 
 Thank you for visiting my portfolio and for considering me for potential opportunities.
